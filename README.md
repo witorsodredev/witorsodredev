@@ -30,7 +30,7 @@
 
 </div><br/>
 
-Apaixonado por tecnologia, graduado em Análise e Desenvolvimento de Sistemas, sempre em busca de contribuir positivamente para a vida das pessoas através do conhecimento e inovação.
+Apaixonado por tecnologia, graduado em Análise e Desenvolvimento de Sistemas, sempre em busca de contribuir positivamente para a vida das pessoas através do conhecimento e inovação.🚀
 
 
 ## Contatos:
